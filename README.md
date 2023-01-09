@@ -45,7 +45,6 @@ Making sure outlets are connected.
 
 
 
-https://user-images.githubusercontent.com/56946868/155921964-dd5d88d5-4365-4d65-8e0e-91e71fb2a0fb.mov
 
 
 
